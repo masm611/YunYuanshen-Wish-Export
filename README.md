@@ -8,4 +8,4 @@
 Android 7.0+
 
 APK下载链接：
-【请稍等，正在审核】
+[https://www.wyylkjs.top/YunYuanshen-Wish-Export.apk](https://www.wyylkjs.top/YunYuanshen-Wish-Export.apk)
