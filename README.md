@@ -13,4 +13,4 @@ APK下载链接：
 [https://www.wyylkjs.top/YunYuanshen-Wish-Export.apk](https://www.wyylkjs.top/YunYuanshen-Wish-Export.apk)
 
 使用方法录屏：
-[【4.6原神手机获取抽卡记录分析地址！无需扫码！-哔哩哔哩】https://b23.tv/dn6ppLY](https://b23.tv/dn6ppLY)
+[【4.6原神手机获取抽卡记录分析地址！无需扫码！-哔哩哔哩】](https://b23.tv/dn6ppLY)
